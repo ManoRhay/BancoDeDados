@@ -1,0 +1,2 @@
+Olá Thatila, aqui lhe apresento meu ultimo grande trabalho da Kick feito com toda a sua ajuda e esforço, não está perfeito, mas creio que vai gostar, deixei varios comentarios para ficar mais facil de voce compreender.
+Thalita, como seu aluno e como dev iniciante, quero agradecer por tudo, voce ja sabe o como voce foi importante para a minha vida e eu lhe garanto que irei fazer seu esforço valer a pena. <3
